@@ -6,7 +6,3 @@ ilk projem
 
 ```fewfewfe```
 
-'''bhbhbh'''
-
-> dbejhwdejh
-
